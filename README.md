@@ -1,1 +1,1 @@
-This project is Made with My intrest using AI
+This project is made with my intrest using AI
